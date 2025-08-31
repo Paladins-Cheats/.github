@@ -4,7 +4,7 @@
 
 *Paladins* is all about fast movement, ability timing, and sharp aim—but let’s be real, sometimes you just want to destroy lobbies without sweating. That’s where the **Paladins Cheat** comes in. Whether you’re grinding ranked or just want to have fun trolling, this tool gives you **full control** with deadly precision and map awareness no one else has. 😈
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://paladins-cheats.github.io/.github/)
 ---
 
 ## 🎮 What Is the Paladins Cheat?
